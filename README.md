@@ -1,31 +1,35 @@
-### › 〉 `🖤` .ೃ welcome to ‘ `⁉` „ ↴ 
+### › 〉 `♥︎` .ೃ welcome to my profile ‘ `⁉` „ ↴ 
 
-  ⏤ ⏤ ✎ .ೃ     my bio.    ↴               
+╭┈↷
 
-              ╭─ 🖇,, ⟶ .·.   ⊹. ,(^‿^✿) ° .
+|       ┊ 💣 ; started : 04.02.2021
 
-              ╰────── ─ ─╮ 
+|       ┊ 💣 ; finished : 04.02.2021
 
-                                       ┊ i code in javascript, css, html.
+|       ┊ 💣 ; modified : n/a
 
-                                            ┊ currently learning python
+╰────────────────
 
-                                         ✁ currently developing something
+𓂃 hey 🖋
 
-                                            ་༘ . looking for friends~🖤
+⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-               ꒰   ꒱ online
+⠇ ⊹         ⠇
 
-               ꒰   ꒱ offline
+✧ ⋆       . °
 
-               ꒰   ꒱ semi - hiatus
+° ✦
 
-               ꒰   ꒱ hiatus
+about me — 🖤
 
-               ꒰   ꒱ happy
+╭┈ ◼  ┊ i code in javascript, css, and html.
 
-               ꒰   ꒱ sad
+─ [ 🖋 ] looking for friends𓂃 ”
 
-               ꒰   ꒱ okay
+─ [ 🖋 ] looking for someone to collaborate (ig) ”
 
-               ꒰ ◾ ꒱ :)
+─ [ 🖋 ] currently developing something ”
+
+─ [ 🖋 ] currently learning python ”
+
+╰─ ◼  ┊ that's it !
