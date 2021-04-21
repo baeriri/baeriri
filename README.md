@@ -6,7 +6,7 @@
 
 |       ┊ 💣 ; finished : 04.02.2021
 
-|       ┊ 💣 ; modified : n/a
+|       ┊ 💣 ; modified : 04.21.2021
 
 ╰────────────────
 
@@ -23,6 +23,10 @@
 about me — 🖤
 
 ╭┈ ◼  ┊ i code in javascript, css, and html.
+
+─ [ 🖋 ] bored af always ”
+
+─ [ 🖋 ] unmotivated? idk L ”
 
 ─ [ 🖋 ] looking for friends𓂃 ”
 
